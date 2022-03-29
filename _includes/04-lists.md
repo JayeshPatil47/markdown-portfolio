@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+# Rich Dad Poor Dad
+# Power of Money
+# Story of Musk
