@@ -1,3 +1,3 @@
-# Rich Dad Poor Dad
-# Power of Money
-# Story of Musk
+- Rich Dad Poor Dad
+- Power of Money
+- Story of Musk
